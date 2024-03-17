@@ -1,2 +1,2 @@
 # KYRA-BY-WARSAW
-Introducing Kyra - Revolutionizing Virtual Leaning Experience
+Introducing Kyra - Revolutionizing Virtual Learning Experience
